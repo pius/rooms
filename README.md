@@ -12,6 +12,7 @@ Current moderators: @myobie
 
 | name | message |
 | :--- | :------ |
+| pius | what's up @myobie? I like this. btw, did you end up ordering an Apple Watch? |
 | chad | This is a really inconvenient way to chat. That's what I like about it the most. |
 | chad | hallo @myobie.  @i0rek wie gehts? |
 | myobie | Guten morgen |
